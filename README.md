@@ -8,7 +8,7 @@ Meu nome é Helisa Piratelo
 
 - ### Vocé entrar em contato comigo 📫
 
-- piratelo.helisa@ecola.pr.gov.br
+- piratelo.helisa@escola.pr.gov.br
 
 
 
